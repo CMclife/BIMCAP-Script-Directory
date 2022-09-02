@@ -1,1 +1,0 @@
-# BIMCAP-Script-Directory
